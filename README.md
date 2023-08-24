@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PARASDHIMAN8055
 - 👀 I’m interested in CODING
-- 🌱 I’m currently learning APP DEVELOPMEN
+- 🌱 I’m currently learning APP DEVELOPMENT
 - 📫 How to reach me https://www.linkedin.com/in/paras-dhiman-0a525b216
 - 
 
